@@ -8,8 +8,6 @@ Advanced New 2023 Crypto &amp; Token Stealer!!! With new undetectable features: 
 
 If you nead help or want to buy PRO version (with fud - undetecatable), then fell free to contact us: -> Telegram: https://t.me/zelvafrancek 
 
-![craiyon_003641_Malware (1)](https://user-images.githubusercontent.com/83518739/230246777-91118bea-f3d2-4023-8cab-60fbd715a05c.png)
-
 
 
                                              🤖 Product Key Futures
