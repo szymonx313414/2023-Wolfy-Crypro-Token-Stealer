@@ -6,7 +6,7 @@ Advanced New 2023 Crypto &amp; Token Stealer!!! With new undetectable features: 
 
                                               😄 We are here to help !!!
 
-If you nead help or want to buy PRO version (with fud - undetecatable), then fell free to contact us: -> Telegram: https://t.me/zelvafrancek420 
+If you nead help or want to buy PRO version (with fud - undetecatable), then fell free to contact us: -> Telegram: https://t.me/zelvafrancek 
 
 ![craiyon_003641_Malware (1)](https://user-images.githubusercontent.com/83518739/230246777-91118bea-f3d2-4023-8cab-60fbd715a05c.png)
 
@@ -61,7 +61,7 @@ Enjoy!
 
                                                  🖼️ PRO vs DEMO version (Virustotal)
                                                  
- If you are interested in Pro version for only 69$ -> Telegram: https://t.me/zelvafrancek420
+ If you are interested in Pro version for only 69$ -> Telegram: https://t.me/zelvafrancek
 
 ![pro](https://user-images.githubusercontent.com/83518739/230244781-3035666a-5cbb-4d46-891f-252de87ac2f3.png)
 
