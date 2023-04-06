@@ -4,7 +4,7 @@ Advanced New 2023 Crypto &amp; Token Stealer!!! With new undetectable features: 
 ![1](https://user-images.githubusercontent.com/83518739/230242109-7ced7199-a197-4d35-b937-c3b6d860af28.png)
 
 
-                                                😄 We are here to help !!!
+                                              😄 We are here to help !!!
 
 If you nead help or want to buy PRO version (with fud - undetecatable), then fell free to contact us: -> Telegram: https://t.me/zelvafrancek420 
 
@@ -12,7 +12,7 @@ If you nead help or want to buy PRO version (with fud - undetecatable), then fel
 
 
 
-                                                  🤖 Product Key Futures
+                                             🤖 Product Key Futures
 Quiet Startup
 
 Grab Discord Token, Phone Number, E-mail and HQ Friends.
